@@ -1,14 +1,14 @@
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=A69B7F&label=^w^+++"/>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=b6adba&label=^w^+++"/>
  
 [![Tumblr-l-92468639988434.png](https://i.postimg.cc/fk4QZ7cv/Tumblr-l-92468639988434.png)](https://postimg.cc/9wBnY7N4)
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Berkshire+Swash&size=25&pause=1000&color=A47C41&center=true&random=true&width=435&lines=Oh+dear%2C+take+my+hand" alt="Typing SVG" /></a>
 <p align="center">
-   <br> ${\textsf{\color{#A69B7F}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#b6adba}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
-  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
+  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/FoolsUmbra">alt account</a>　　⟢——
      <br> ${\textsf{\color{#A99563}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
