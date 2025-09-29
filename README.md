@@ -1,10 +1,8 @@
 <p align="center"> 
     <p align="center">
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=A69B7F&label=^w^+++"/>
-        
-[![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
  
-[![218-sin-t-tulo-20250913171619.png](https://i.postimg.cc/RVm5mRTw/218-sin-t-tulo-20250913171619.png)](https://postimg.cc/V5KHBXpN)
+[![Tumblr-l-92468639988434.png](https://i.postimg.cc/fk4QZ7cv/Tumblr-l-92468639988434.png)](https://postimg.cc/9wBnY7N4)
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Berkshire+Swash&size=25&pause=1000&color=A47C41&center=true&random=true&width=435&lines=Oh+dear%2C+take+my+hand" alt="Typing SVG" /></a>
 <p align="center">
